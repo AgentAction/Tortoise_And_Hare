@@ -1,0 +1,3 @@
+*Story*
+Once upon a time in a forest, there lived a hare named Jagoo and a tortoise named Bhagoo. They accidently met once in the
+forest and decided to have a racing competition..... 
